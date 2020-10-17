@@ -1,0 +1,1 @@
+Take the pizza base apply some pizza sauce on it, add some cheese, add herbs,add all your vegetables and olives, jalapenos.
